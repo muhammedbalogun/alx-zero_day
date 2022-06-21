@@ -1,1 +1,1 @@
-This is the beginning of VC
+This is the beginning of VC learning journey
